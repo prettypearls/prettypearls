@@ -1,6 +1,6 @@
          basic information is found here. if you want to know smaller details, send bow a whisper! she may reply late though.
 
-onion-chan or onny for short usually is offtab either drawing or watching something. onny rarely is ontab and/or interacts with anyone but her party and mutuals! onny is usually in high spirits unless the symbol 💢 or 🩸 is used. look at main account to know what the symbols mean. onny is mainly semi-verbal!
+onion-chan or onny for short usually is offtab either drawing or watching something. onny rarely is ontab and/or interacts with anyone but her party and mutuals. onny is mainly semi-verbal!
 
 onny gets overwhelmed alot, especially when she's forced to do something. she is near party at ALL times! also, please do not randomly come up and confront her, onny is VERY bad at confrontations.
 
