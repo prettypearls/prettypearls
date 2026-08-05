@@ -26,7 +26,7 @@
   
 ‎‎<a href="https://github.com/dynamitrr">lara</a>
   
-‎<a href="https://github.com/SIGN-MY-STRAW-TWIN">milla</a> + ‎<a href="https://github.com/crushdow">mace</a>
+‎<a href="https://github.com/SIGN-MY-STRAW-TWIN">milla</a>
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  $\color{#ffb1cf}{\textsf{+ following and all my moots who dont have pt !}}$
   
